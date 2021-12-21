@@ -1,0 +1,1 @@
+# osamakhalidyt.com
